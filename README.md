@@ -8,7 +8,7 @@ next, nest book
 https://drive.google.com/file/d/1Vsx_bAJG6T6OEt38JWPTtpbjl_l4ZQFH/view?usp=sharing
 
 Archive -CRM TOgether
-https://drive.google.com/file/d/18mBF1I58n0ZKuruY4YvXmWc6x5sRH7zk/view?usp=sharing
+https://mega.nz/file/GqJx3DIb#sGn3BKM5arAqWQnyZSiVfvtI_OImJOKoHWFh-NrYwEo
 
 Ytguard
-https://drive.google.com/file/d/1o0K1eOwqRFDoWCzDLvWPB7DsUsVuX8z6/view?usp=sharing
+https://mega.nz/file/Sn4C0TZA#fOhiEaAacD3aUKD1NoWi7VXPnwJhi0Ncr5BmItdt5fc
