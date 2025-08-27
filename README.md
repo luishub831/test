@@ -12,3 +12,7 @@ https://mega.nz/file/GqJx3DIb#sGn3BKM5arAqWQnyZSiVfvtI_OImJOKoHWFh-NrYwEo
 
 Ytguard
 https://mega.nz/file/Sn4C0TZA#fOhiEaAacD3aUKD1NoWi7VXPnwJhi0Ncr5BmItdt5fc
+
+Github-azure,aws
+https://drive.google.com/drive/folders/12TBeXPkSig33ezfffzCkxThD7Wym6yUd?usp=sharing
+
