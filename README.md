@@ -26,7 +26,8 @@ Coding Challenge
 https://drive.google.com/file/d/1igV3qzGtmNQEbfsu_gguKbnUqzVEXAWe/view?usp=sharing
 
 Me
-https://drive.google.com/file/d/1Vgcnt96mU2vqCmnXESOrf__ZBafTEt4g/view?usp=drive_linkpym831
+https://drive.google.com/file/d/1Vgcnt96mU2vqCmnXESOrf__ZBafTEt4g/pym831/view?usp=drive_link
+https://drive.google.com/file/d/13iVohyHu8Ye4tcH1a9M2CV-2W71WfFj0/pym831/view?usp=sharing
 
 
 
